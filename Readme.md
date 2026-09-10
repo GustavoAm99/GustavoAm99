@@ -46,3 +46,9 @@ Aprofundar meus conhecimentos em bancos de dados
 
 
 
+###### Contatos:
+
+E-mail: [gustavoamerico999@gmail.com](gustavoamerico999@gmail.com)
+
+LinkedIn: [LinkedIn Gustavo Américo ](https://www.linkedin.com/in/gustavo-am%25C3%25A9rico-alves-ribeiro-b0a86a355/)
+
